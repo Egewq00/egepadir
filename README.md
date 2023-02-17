@@ -1,0 +1,2 @@
+# egepadir
+Mavi tık 
